@@ -7,8 +7,8 @@
 - 💡 Exploring the world of Data Ethics and AI.
 
 ### 📫 Connect With Me
-- 💼 **LinkedIn:** [linkedin.com/in/your-anushka-srivastava-7b5508440](https://linkedin.com/in/your-linkedin-anushka-srivastava-7b5508440)
-- 📧 **Email:** [your-anushkasrivastava0129@gmail.com](mailto:anushkasrivastava0129@gmail.com)
+- 💼 **LinkedIn:** [Anushka Srivastava] (www.linkedin.com/in/anushka-srivastava-7b5508440)
+- 📧 **Email:** [anushkasrivastava0129@gmail.com](mailto:anushkasrivastava0129@gmail.com)
 
 
 -->
